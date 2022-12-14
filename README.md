@@ -4,4 +4,4 @@
 
 📘 Discord: https://t.co/U9HGhDEsPM
 
-📘 Twitter: https://twitter.com/ErgoAdventurers
+📘 Twitter: https://twitter.com/AdventurersDAO
